@@ -13,7 +13,7 @@ Bot de ventas y bienestar natural de **Lore (Lorena Liffourrena)**, Consultora o
 ## 🔗 Links
 
 - **Facebook:** [facebook.com/lorena.liffourrena](https://www.facebook.com/lorena.liffourrena)
-- **Instagram:** [instagram.com/lorena.liffourrena](https://www.instagram.com/lorena.liffourrena)
+- **Instagram:** [instagram.com/lorena.liffourrena](https://www.instagram.com/lorena_liffourrena/)
 - **Swiss Just Argentina:** [swissjustargentina.com](https://www.swissjustargentina.com)
 
 ## ⚙️ Panel de administración
